@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with elite blur sniper bot | NFT-sniping + take-profit. Featuring NFT-sniping and take-profit, it's the best choice for automated NFT trading.
 
 
 
